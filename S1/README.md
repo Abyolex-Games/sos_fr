@@ -11,4 +11,8 @@ Puis retrouver les liens pour chaque épisode ci-dessous.
 - [Episode 2](https://youtu.be/vLDJve07sxo)
 - [Episode 3](https://youtu.be/TfNkK3mr0vc)
 - [Episode 4](https://youtu.be/VvY4LAwm17I)
-
+- [Episode 5](https://www.youtube.com/watch?v=yeGT7mMVlKc)
+- [Episode 6](https://www.youtube.com/watch?v=A5NROqHotxs)
+- [Episode 7](https://www.youtube.com/watch?v=YndebAJ3O2Q)
+- [Episode 8](https://www.youtube.com/watch?v=7vzMhZhVct0)
+- [Episode 9](https://www.youtube.com/watch?v=dGE3fshlVVI)
